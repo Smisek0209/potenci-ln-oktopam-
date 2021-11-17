@@ -1,0 +1,1 @@
+# potenci-ln-oktopam-
